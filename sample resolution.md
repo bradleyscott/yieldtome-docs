@@ -37,8 +37,6 @@ The Economic and Social Council,
 		1. Giving subsidies and encouragement to small and medium-sized companies intending to cooperate with the local population to develop ecotourism,
 	1. Engaging in joint initiatives to stimulate ecotourism, by awarding grants to ecotourism companies and enlisting NGOs for innovative approaches to less impact tourism;
 
-1. *Requests* governments to regulate ecotourism companies by requiring them to educate ecotourists on ways to reduce their impact on the environment, such as refraining from littering, transporting species as this may cause the introduction of invasive species;
-
 1. *Further requests* all member states to further promote ecotourism as a viable economic framework to eradicate poverty by:
 	1. Possibly declaring a year in the future to be the year of ecotourism, in which specific attention will be devoted to perfecting the ecotourism model and funding these specific activities,
 	1. Promoting sustainable tourism products and services with cooperation from the private sector in order to alert consumers to alternative ways to enjoy a vacation and benefit the environment,
